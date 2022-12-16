@@ -1,4 +1,4 @@
-# PASDECHANCE IS BBBHLTZ
+# BBBHLTZ
 
 I do not use Github for more than following projects.
 
